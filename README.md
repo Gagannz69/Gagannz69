@@ -61,7 +61,7 @@ I'm always interested in connecting with fellow developers, students, and tech e
 - **GitHub:** [Gagandeep Singh](https://github.com/Gagannz69)
 - **Portfolio:** [Visit My Portfolio](https://gaganzzz99-portfolio.vercel.app)
 - **LinkedIn:** [Connect With Me](https://www.linkedin.com/in/gaganzzz99/)
-- - **Instagram:** [Follow me on Instagram](https://www.instagram.com/gagannz_?obrf=MTlobWQ3Mm1wb3lrMA==)
+- **Instagram:** [Follow me on Instagram](https://www.instagram.com/gagannz_?obrf=MTlobWQ3Mm1wb3lrMA==)
 
 ---
 
